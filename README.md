@@ -17,9 +17,9 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning programming
-- 👯 I’m looking to collaborate on koi&porcupine
+- 👯 I’m looking to collaborate on koi & porcupine
 - 🤔 I’m looking for help with koi&porcupine
 - 💬 Ask me about what can you do if my kois and porcupines are so cute
-- 📫 How to reach me: By kois&porcupines seminar
-- 😄 Pronouns: koi&porcupine
-- ⚡ Fun fact: little porcupines are furry!CUTE!
+- 📫 How to reach me: By kois & porcupines seminar
+- 😄 Pronouns: koi & porcupine
+- ⚡ Fun fact: little porcupines are furry! CUTE!
